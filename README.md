@@ -1,1 +1,1 @@
-# Discrete-structures-seminar-KN-winter-2020-2021-
+# Discrete-structures-seminar-KN-winter-2020-2021
